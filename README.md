@@ -1,2 +1,2 @@
-# imghostinglol
+# randomthinglol
 itsamemario
